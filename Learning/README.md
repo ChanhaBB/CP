@@ -1,1 +1,1 @@
-Textbook Readings, Journal Articles, Lecture Notes... etc
+Textbook Readings, Journal Articles, Lecture Notes.... etc
